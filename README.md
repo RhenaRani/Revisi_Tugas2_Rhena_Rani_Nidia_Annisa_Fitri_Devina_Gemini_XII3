@@ -1,0 +1,2 @@
+# Revisi_Tugas2_Rhena_Rani_Nidia_Annisa_Fitri_Devina_Gemini_XII3
+Tugas 2 gemini
